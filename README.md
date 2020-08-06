@@ -1,2 +1,3 @@
 # hello-world
 tutoriel 
+i'm Florette, i draw when i'm sad or stress out, i draw everyday ...
